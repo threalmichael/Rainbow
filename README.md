@@ -1,6 +1,6 @@
 # Rainbow
 This is a poem about Rainbows and Teddy Bears
-Very Reds re
+Very Reds red red red
 Orange
 Yellow
 Green
